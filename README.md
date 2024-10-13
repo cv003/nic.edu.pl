@@ -2,7 +2,7 @@
 a placeholder website in place of polands' educational registry (NIC)
 
 ### there should definitely be legal concerns with this, right?
-uh, *<sup>probably</sup>* *<sup>ʸᵉᵃʰ??</sup>* <br>
+uhh, *<sup>likely</sup>* *<sup>ⁿᵒᵗ??</sup>* <br>
 it expired 4 days prior to writing this <br>
 and it was used as a temporary .edu email. there was seemingly never an actual registry there <br>
 
